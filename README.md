@@ -1,3 +1,3 @@
 
 ## hi their
-[](https://dinakarbijili.netlify.app/)
+[Dinakar](https://dinakarbijili.netlify.app/)
